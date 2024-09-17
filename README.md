@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... How to do pixel art and produce a game!
 - 💞️ I’m looking to collaborate on ... Game
 - 📫 How to reach me ... graydonstevens@icloud.com or graydonstevens224@gmail.com
-- 😄 Pronouns: ... He/Him or They/Them don't rlly care
+- 😄 Pronouns: ... He/Him 
 - ⚡ Fun fact: ... Im tooo sigma
 
 <!---
